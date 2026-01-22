@@ -1,3 +1,4 @@
+<img width="427" height="409" alt="Screenshot 2026-01-22 164828" src="https://github.com/user-attachments/assets/4ef1c465-d15a-4554-a063-d1cb97ce4d1c" />
 
 
 ## 🖱️ What your Auto Clicker does
